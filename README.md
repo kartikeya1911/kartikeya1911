@@ -15,6 +15,6 @@ Web Designing 🎨
 Creative Coding 💡
 
 **📫 How to Reach Me**
-Email: jainkartikeya9@gail.com
+Email: jainkartikeya9@gmail.com
 LinkedIn: Kartikeya Jain
 
